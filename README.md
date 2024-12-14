@@ -9,7 +9,7 @@ Obejrzyj film U Pana Boga w Królowym Moście (2024) z polskimi napisami i polsk
 <p><b><I><a href="http://r-movies.com/pl/movie/1233906/u-pana-boga-w-krlowym-mocie-codepl" rel="noopener">📀🎬 Oglądaj : ▶️ U Pana Boga w Królowym Moście (2024) za darmo</a></I></b></p>
 
 
-Najbardziej oczekiwany film roku w końcu nadszedł! "U Pana Boga w Królowym Moście" Po otrzymaniu nieoczekiwanego telefonu od swoich przodków, którzy odnaleźli drogę, Moana musi wyruszyć na odległe morza Oceanii i na niebezpieczne, dawno zaginione wody, aby przeżyć przygodę, jakiej nigdy wcześniej nie doświadczyła.
+Najbardziej oczekiwany film roku w końcu nadszedł! "U Pana Boga w Królowym Moście" Student archeologii odkrywa dokument przyznający Mostowi Królewskiemu, małemu miasteczku we wschodniej Polsce, prawo do suwerenności, co prowadzi do wielu zabawnych wydarzeń.
 
 Przeżyj pełną napięcia historię, w której paraliżujący strach łączy się z niezwykłą grafiką, dzięki czemu każda scena wydaje się realna i prześladuje widzów. Dla prawdziwych fanów kina U Pana Boga w Królowym Moście to filmowe przeżycie, którego nie można przegapić.
 
